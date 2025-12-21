@@ -1,8 +1,9 @@
 <div align="center">
+<img src="https://files.catbox.moe/uzbhfi.png" width="600" height="400"/>
 
-<img src="https://64.media.tumblr.com/cdd20a793cdb3cbc1052463cb82b40d2/715c2c5fcd4615b8-33/s1280x1920/aadc3d6bad902236e3c2413d6336dbaed3483c79.png" width="600" height="250"/>
-<br>
-<br>
+$${\color{#546653}vega   ⋮  he⠀they　}$$　 　 
 
-###### i can't be bothered to finish this
+$${\color{#546653}c+h⠀all+always}$$
+$${\color{#546653} tonetags⠀appreciated}$$
 
+[color tree](https://colormytree.me/2025/01JEHWR905JRSPMPASBXHH5AN6) [ata](https://forcas.atabook.org/) [straw](https://s-01-ver-bullet.straw.page/)
