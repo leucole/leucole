@@ -1,17 +1,10 @@
 <div align="center">
-<img src="https://files.catbox.moe/x1kk32.png" width="600" height="400"/>
+  <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Unkempt&size=30&duration=1500&pause=1000&color=B6CCE9&width=435&lines=i+got+their+hands+upon+my+thighs;got+me+nervous%2C+i'm+pulling+my+tie;take+your+life+and+receive+a+prize;bitch%2C+take+a+chance%2C+go+on+and+roll+the+dice" alt="Typing SVG" /></a>
+ 
+  <img src="https://files.catbox.moe/bvfrta.png">
+  <img src="https://files.catbox.moe/hkmahm.png" width="750">
+<p>
 
-<div align="center">
-  <img src="https://files.catbox.moe/u7cvy8.png" width="250" height="100" />
-  
+  [ata](https://leucole.atabook.org/)  [prnscc](https://pronouns.cc/@8_11)  [main acc](https://github.com/gambling-addict)
 
-         $${\color{#c74625}leucole   }$$ $${\color{#6b4b8a}⋮}$$ $${\color{#80c958} he⠀they　}$$
-<br/>
-         $${\color{#967334}c+h}$$ $${\color{#95bb5c}comf}$$
-<br/>
-         $${\color{#d76237} tonetags⠀}$$ $${\color{#8453ac}appreciated}$$
-
-  [ata](https://leucole.atabook.org/)  [straw](https://s-01-ver-bullet.straw.page/)
-
-
-
+</p>
